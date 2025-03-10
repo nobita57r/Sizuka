@@ -1,37 +1,62 @@
-## This Is A Protected Bot! If You Fork Without Permission Your Bot will Ban Automatically😗
+<img src="https://i.imgur.com/7OG6V8h.jpeg" alt="banner">
+<h1 align="center"><img src="./dashboard/images/logo-non-bg.png" width="22px">  -𝗕𝗢𝗧 -  𝗠𝗘𝗦𝗦𝗘𝗡𝗚𝗘𝗥 𝗖𝗛𝗔𝗧 𝗕𝗢𝗧</h1>
+<!-- Github README -->
 
-## For Using This Bot You Need To Subscribe My YouTube Channel.Than Join My Whatsapp group And Send Me Prove I will Give You Access Code.
-## I'm [VEX_ADNAN] Also Know As 𝐋𝐨𝐠 𝐎𝐮𝐭                    Facebook Link 🔗        ([VEX_ADNAN](https://www.facebook.com/VEX.ADNAN.404)]🙎🏻‍♂️🖤
+<p align="center"><img src="https://img.shields.io/badge/I Am BAYJID %20BANGLADESHI- NOOB PROGRAMMER-green?colorA=%23ff0000&colorB=%23017e40&style=flat-square">
 
-# 📰 Talking about Information
-<img align="right" width=200px alt="PNG" src="https://i.imgur.com/4IcnUwQ.jpeg" />
-
--   💋 ᴍʏ ɴᴀᴍᴇ ɪs VEX_ADNAN🙎🏻‍♂️🖤
--   ❤️‍🔥 19/03/2005
--   💬 MY NICKNAME IS AYAN🐰
--   💬 ɪ ʜᴀᴠᴇ ᴀ 2ᴘᴇʀsᴏɴ ᴍʏ ᴍᴏᴍ ᴍʏ ᴅᴀᴅ
--   💓 ʀᴇʟᴇᴛɪᴏɴsʜɪᴘ: sɪɴɢʟᴇ
--   🍁 ᴘʀᴏғɪʟᴇ: [ғᴀᴄᴇʙᴏᴏᴋ]([](https://www.facebook.com/VEX.ADNAN.404))
--   🍀 ᴅᴇsᴄʀɪʙᴇ ᴀʙᴏᴜᴛ ɪᴍ ᴛᴏ ᴍᴜᴄʜ ʙᴜsʏ ᴍʏ ᴊᴏʙ
-<hr>
-
-# 📖 Top Langs
-![](https://imgur.com/a/HkuD0bH)
+</i></b></h3>
+<h3 align="center">
+  <img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
+  &nbsp; ᴡᴇʟᴄᴏᴍᴇ ᴛᴏ ᴍʏ ᴄʜᴀᴛ ʙᴏᴛ &nbsp;
+  <img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
+</h3>
+<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-1.svg">
 
 
-# 🤝🏻 Connect with Me
+
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23F70B10&size=27&lines=𝙸+𝙰𝙼+𝙸𝙽𝙽𝙾𝙲𝙴𝙽𝚃+𝙱𝙾𝚈;+𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙹𝚄𝚂𝚃+𝙰+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾;𝙸𝚃'R+A+𝙱𝚁𝙰𝙽𝙳;𝚃𝙷𝙰𝙽𝙺+𝚈𝙾𝚄+𝙴𝚅𝙴𝚁𝚈𝙾𝙽𝙴;𝙻𝙾𝚅e+𝚄+𝙰𝙻𝙻+𝙵𝚁𝙸𝙴𝙽𝙳𝚂)](https://git.io/typing-svg)
 
 
-# Click The Icon For link
-<p align="center">
-&nbsp; <a href="𝐍𝐀𝐈𝐈" target="_blank" rel="noopener noreferrer"><img src="https://www.facebook.com/VEX.ADNAN.404" width="100" /></a>
-&nbsp; <a href="https://chat.whatsapp.com/01853557896" target="_blank" rel="noopener noreferrer"><img src="https://cdn-icons-png.flaticon.com/512/3670/3670051.png" width="100" /></a>    
-&nbsp; <a href="https://github.com/MR-AYAN-CHOWDHURY" target="_blank" rel="noopener noreferrer"><img src="https://img.icons8.com/plasticine/100/000000/github.png" width="100" /></a>
-&nbsp; <a href="[(https://www.facebook.com/NOOBS.DEVELOPER.AYAN)]()" target="_blank" rel="noopener noreferrer"><img src="https://img.icons8.com/plasticine/100/000000/facebook.png"  width="100" /></a>
-&nbsp; <a href="mailto: vexadnan404@gmail.com" target="_blank" rel="noopener noreferrer"><img src="https://img.icons8.com/plasticine/100/000000/gmail.png"  width="100" /></a>
+<h3><b><i>🏆 Github Statistics :</i></b></h3>
+<a href="https://github.com/BAYJID-404-BOYZ"><img width=550 src="https://github-profile-trophy.vercel.app/?username=𝐌𝐎𝐇𝐀𝐌𝐌𝐀𝐃 𝐁𝐀𝐘𝐉𝐈𝐃&theme=dracula&no-frame=true&title=Followers,Stars,Commit,Repository,Issues"/></a>
+
 </p>
-<br>
-<a href="#" target="_blank">
-	<img src="https://imgur.com/a/HkuD0bH" width="1200" alt="Click to see the source" />
-</a>  
-</a>
+<p align="center"> 
+ 𝚅𝙸𝚂𝙸𝚃𝙾𝚁𝚂 𝙲𝙾𝚄𝙽𝚃
+ <img src="https://profile-counter.glitch.me/BAYJID-404-BOYA /count.svg" alt="Visitors">
+</p>
+
+<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-1.svg">
+
+<h3 align="center">A Passionate Frontend Developer From Bangladesh</h3>
+
+<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+
+- ➪ 𝗡𝗔𝗠𝗘      :aYan
+
+<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+
+- ➪  𝗥𝗘𝗟𝗜𝗚𝗜𝗢𝗡   : 𝗜𝗦𝗟𝗔𝗠
+
+<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+
+- ➪ 𝗘𝗗𝗨𝗖𝗔𝗧𝗜𝗢𝗡 :- 𝗦𝗧𝗨𝗗𝗬
+
+<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+
+- ➪ 𝗥𝗘𝗟𝗔𝗧𝗜𝗢𝗡𝗦𝗛𝗜𝗣 :- 𝗦𝗜𝗡𝗚𝗟𝗘
+
+<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+
+- ➪ 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 :- [AYAN](www.xnxx.com/)
+
+<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+
+- ➪ 𝗜𝗡𝗦𝗧𝗔𝗚𝗥𝗔𝗠 :- [Shor Magi 😞](www.xvideos.com)
+
+<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+
+<h3><b><i> Contact me in Touch :</i></b></h3>
+<a href="https://github.com/BAYJID-404-BOYZ"><img align="left" title="Github" alt="Github" width="30px" src="https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/github.svg" /></a>
+<a href="https://fb.com/BAYJID.404-BOYZ"><img align="left" title="Facebook" alt="Facebook" width="30px" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/facebook.svg" /></a>
+<a href="https://www.instagram.com/mr_bayjid120"><img align="left" title="Instagram" alt="Instagram" width="30px" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" /></a>
