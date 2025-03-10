@@ -5,8 +5,8 @@ const fs = require("fs");
 module.exports = {
  config: {
  name: "pinterest",
- aliases: ["pin", "pic"],
- version: "1.0",
+ aliases: ["pin"],
+ version: "0.0.1",
  author: "ArYAN",
  role: 0,
  countDown: 20,
